@@ -60,5 +60,5 @@
 ### 🏠 Живу в Петербурге, готов к переездам ✈️
 ### ✉️ Контакты
 
-* Email: alexanches@gmail.com
+* Email: zholtikov.aleksandr@gmail.com
 * Telegram: @ZholtikovAleksandr
